@@ -10,7 +10,7 @@
 
 💡 Ready to explore innovative solutions that not only meet but exceed industry standards, ensuring compliance and fostering growth.
 
-📫 Reach out, and let's chart the future of finance together!
+📫 Reach out, and let's chart the future of Risk Management together!
 
 
 <!---
