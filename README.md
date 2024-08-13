@@ -2,7 +2,7 @@
 
 - 🌐 Connect with me on [LinkedIn](https://www.linkedin.com/in/Bhagabati-Mishra) or drop me an email at bmishra369@icloud.com.
 
-🚀 As a seasoned Risk and Compliance professional with over 14 years of experience in the dynamic Capital Market segment, I bring a wealth of expertise in ensuring regulatory adherence and mitigating risks.
+🚀 As a seasoned Risk and Compliance professional with over 15 years of experience in the dynamic Capital Market segment, I bring a wealth of expertise in ensuring regulatory adherence and mitigating risks.
 
 🌱 Currently, I'm on an exciting journey, diving into the realms of Data Science and Artificial Intelligence through a comprehensive program at IIIT, Bangalore & UpGrad.
 
